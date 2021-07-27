@@ -30,22 +30,22 @@ Seating for three adults, with extra legroom, headroom and a stowable armrest wi
 
 ### Game from Anywhere
 
-**Up to 10 teraflops of processing power enables in-car gaming on-par with today’s newest consoles. 
-Wireless controller compatibility lets you game from any seat.**
+*Up to 10 teraflops of processing power enables in-car gaming on-par with today’s newest consoles. 
+Wireless controller compatibility lets you game from any seat.*
 
 ### Stay Connected
 
-**Multi-device Bluetooth, wireless and USB-C charging for every passenger, 
-with enough power to fast-charge your tablets and laptop.**
+*Multi-device Bluetooth, wireless and USB-C charging for every passenger, 
+with enough power to fast-charge your tablets and laptop.*
 
 ### Your Best Audio System
 
-**A 22-speaker, 960-watt audio system with active noise canceling offers the best listening experience at home or on the road.**
+*A 22-speaker, 960-watt audio system with active noise canceling offers the best listening experience at home or on the road.*
 
 ### Real Storage
 
-**With front and rear trunks and fold-flat seats, 
-Model S is a luxury car where you can fit your bike without taking the wheel off, and your luggage too.**
+*With front and rear trunks and fold-flat seats, 
+Model S is a luxury car where you can fit your bike without taking the wheel off, and your luggage too.*
 
 ## Plaid
 
